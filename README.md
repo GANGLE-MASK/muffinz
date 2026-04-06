@@ -11,3 +11,10 @@
 ${{\color{#921B54}{\textsf{ ⠀⠀⠀⠀⠀𝗢𝗙 𝗧𝗛𝗘 𝗘𝗩𝗜𝗟 𝗣𝗢𝗠𝗡𝗜!! }}}}$ 
 <img width="1378" height="264" alt="Image" src="https://github.com/user-attachments/assets/14450854-4197-4e72-956f-dd91292c8a6f" />
 <div align="center"> rbyi !! (on repostiroties or whatever)
+4
+
+<img width="2048" height="154" alt="Image" src="https://github.com/user-attachments/assets/7fb9ced9-343c-4a02-b8b7-4da94269cc2a" />
+
+![Image](https://github.com/user-attachments/assets/896642fb-aa1e-468b-b768-504e0623cfb0)
+<img width="2048" height="154" alt="Image" src="https://github.com/user-attachments/assets/7fb9ced9-343c-4a02-b8b7-4da94269cc2a" />
+<div align="center"> credits to adorbsfox.
