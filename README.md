@@ -30,3 +30,9 @@ ${{\color{#921B54}{\textsf{ ⠀⠀⠀⠀⠀𝗢𝗙 𝗧𝗛𝗘 𝗘𝗩𝗜�
 <img width="1378" height="1065" alt="Image" src="https://github.com/user-attachments/assets/010f9530-b896-4fb4-b156-d8ca0c8dabac" />
 
 <img width="1378" height="375" alt="Image" src="https://github.com/user-attachments/assets/3d619c01-d257-407e-9e16-a5ceb3557270" />
+
+6
+<div align="center">
+  
+<img width="1014" height="1378" alt="Image" src="https://github.com/user-attachments/assets/a91c05a1-f1a7-4072-a7b5-e2adb3f19079" />
+
