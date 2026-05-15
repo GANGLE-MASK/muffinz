@@ -66,3 +66,28 @@ ${{\color{#921B54}{\textsf{ ⠀⠀⠀⠀⠀𝗢𝗙 𝗧𝗛𝗘 𝗘𝗩𝗜�
 <img width="1216" height="1165" alt="Image" src="https://github.com/user-attachments/assets/1c894cd7-058e-4c6f-86b1-922d7d1f701e" />
 
 
+9(i forgot to add ts)
+
+<div align="center">
+
+<img width="1000" height="297" alt="Image" src="https://github.com/user-attachments/assets/33dd0266-2f40-4180-916d-14c80c117cff" />
+
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/aafed58c-d51f-4b74-8094-fe237d6da687" />
+
+<img width="1000" height="347" alt="Image" src="https://github.com/user-attachments/assets/cca7bf52-9c55-456e-bc19-dc38f64d7916" />
+
+10
+
+ <img width="1378" height="1378" alt="Image" src="https://github.com/user-attachments/assets/694cec98-8825-44b0-ba16-5d957e66a49a" />
+
+
+
+![Image](https://github.com/user-attachments/assets/210c034b-5c71-40d9-8702-4c0cca14711e)
+I MISS MY GNG♡
+
+
+
+11
+
+<img width="588" height="186" alt="Image" src="https://github.com/user-attachments/assets/664e89e5-1da9-4ab3-9743-e3b8558e17f4" />
+
