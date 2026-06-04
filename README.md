@@ -91,3 +91,8 @@ I MISS MY GNG♡
 
 <img width="588" height="186" alt="Image" src="https://github.com/user-attachments/assets/664e89e5-1da9-4ab3-9743-e3b8558e17f4" />
 
+12
+
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/f6c1505a-918f-4c2f-87cb-14dc0d4bb5c1" />
+
+
