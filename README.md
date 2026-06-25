@@ -109,3 +109,11 @@ I MISS MY GNG♡
 <img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/486ad259-52cf-4fb7-9cb1-e61afbef7804" />
 
 [<img width="871" height="203" alt="Image" src="https://github.com/user-attachments/assets/3252bed9-641a-48bf-ba83-30f89caca111" />](https://xennoway.straw.page)
+
+15
+
+<div align="center">
+
+[αtα](https://muffinhead.atabook.org/)book — [strw](https://xennoway.straw.page)page
+
+<img width="1000" height="741" alt="Image" src="https://github.com/user-attachments/assets/b7e3eafb-404d-420c-8880-e4d513e3828e" />
